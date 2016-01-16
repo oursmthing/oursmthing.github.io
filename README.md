@@ -1,1 +1,0 @@
-# oursmthing.github.io
